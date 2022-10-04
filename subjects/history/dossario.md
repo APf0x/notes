@@ -5,4 +5,4 @@ ceto = gruppo di persone che hanno i stessi diritti rispetto agli altri
 
 finanza = "insieme delle attivita di reperimento e impiego delle risorse di un ente"
 
-societa communita di individui unita da scopi uniti
+societa = communita di individui unita da scopi uniti
