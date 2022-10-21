@@ -15,6 +15,6 @@ Così per gli ochi mi pass’a lo core,
 no la persona, ma la sua figura.
 
 
-linea 8: il ma e un cambio di argomento
+linea 8: il ma e un cambio di argomento.
 
-linea 12: parla do come funziona la luce
+linea 12: parla do come funziona la luce.
