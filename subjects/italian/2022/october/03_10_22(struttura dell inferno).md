@@ -9,7 +9,7 @@ i livelli dell inferno vengono rubati da aristotele dal sui libro nicomachea qui
 
    i lussuriosi persone che non si stancano mai di figa
 
-   i golosi quelli che hanno mangiato un dib mad piu di quello che dovevano mangiare(ovvero robe che causano dipendenza come lanmi).
+   i golosi quelli che hanno mangiato un big mac piu di quello che dovevano mangiare(ovvero robe che causano dipendenza come lanmi).
 
    avari e prodighi dove i avari sono quelli tirchi mentre quelli prodighi sono quelli che sprecano i soldi e esagerano.
 
