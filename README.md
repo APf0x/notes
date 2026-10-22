@@ -2,6 +2,8 @@
 
 ## This is a collection of all of the notes i took in my school years
 
+the goat: https://pagine.dm.unipi.it/~a009199/Home_Page/AD_Esercizi.html
+
 
 ![GitHub commit activity](https://img.shields.io/github/commit-activity/w/APf0x/notes)
 ![GitHub commit activity](https://img.shields.io/github/commit-activity/m/APf0x/notes)
